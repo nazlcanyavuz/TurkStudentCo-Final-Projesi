@@ -1,1 +1,0 @@
-# TurkStudentCo-Final-Projesi
